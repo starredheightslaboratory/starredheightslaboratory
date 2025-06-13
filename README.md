@@ -18,7 +18,8 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)   】　
 
 
-![Chance - FORSAKEN __ FANART](https://github.com/user-attachments/assets/909ae3d7-4da4-49f8-b8d3-a441e2457bfb)
+![john doe forsaken fanart (1)](https://github.com/user-attachments/assets/18f7a0a5-3b01-49a6-aaf5-6025ddbf7fe3)
+
 
 <!--
 **404-ERR0R/404-ERR0R** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
